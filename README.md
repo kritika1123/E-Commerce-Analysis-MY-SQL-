@@ -1,0 +1,2 @@
+Identified the top 10 products, leading to a 20% revenue boost through strategic focus. Analyzed regional sales data, pinpointed the top 3 regions, and increased regional sales by 15% with targeted marketing. Provided insights that optimized inventory management and refined sales strategies, improving overall sales performance by
+ 12%. Developed market positioning and operational efficiency and driving significant growth.
